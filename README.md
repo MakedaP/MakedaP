@@ -5,7 +5,7 @@ Focusing on technological innovation, I am passionately engaged in discovering a
 
 ## Objective
 
-My journey in technology has led me to develop a passion for cybersecurity, and I am eager to embrace challenges that come with higher levels of responsibility, aspiring to become a key influencer and leader in the cybersecurity domain.
+My journey in physical security has exposed me to the pivotal convergence of technology and safety, sparking a profound fascination with the perpetually evolving landscape of cybersecurity.
 
 
 ## Skills
